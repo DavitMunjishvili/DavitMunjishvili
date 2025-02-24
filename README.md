@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @DavitMunjishvili
+- i am David from Tbilisi, Georgia 🇬🇪
